@@ -1,4 +1,4 @@
-# 
+# Profissional futures arbitrage bot extensões para Mac OS | Novo futures arbitrage bot extensões para PC Windows. Com execução de alta frequência e seguimento de tendência — otimizado para máximo desempenho em cada plataforma.
 
 
 
